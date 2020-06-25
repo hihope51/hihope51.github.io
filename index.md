@@ -28,5 +28,5 @@ Freiheitlichen Partei Österreichs (FPÖ).
 > Augenaufschlag Menschen zuschieben wollen, deren einzige Schuld
 > es ist, einer politischen Partei angehört zu haben, deren Führung
 > der Hybris verfiel."
-Bild : Regierung von Seyss-Inquart, Wien 1938, 4.v.r Anton Reinthaller
+* Bild : Regierung von Seyss-Inquart, Wien 1938, 4.v.r Anton Reinthaller*
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/4/49/Government_of_Seyss-Inquart.jpg/632px-Government_of_Seyss-Inquart.jpg"/>
