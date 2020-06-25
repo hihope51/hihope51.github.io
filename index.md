@@ -22,3 +22,9 @@ Freiheitlichen Partei Österreichs (FPÖ).
 * Anton Reinthaller und die Anfänge der FPÖ
 * Die FPÖ nach ihrer Gründung 1956
 * NS-Kontinuitäten und Rechtextremismus
+> Anton Reinthaller beim Prozeß am Volksgerichtshof in Wien 1949 :
+> "Ich, eines der verfolgten Opfer der Totengräber unseres Landes
+> klage sie an, aller jener Verbrechen, die sie mit scheinheligem
+> Augenaufschlag Menschen zuschieben wollen, deren einzige Schuld
+> es ist, einer politischen Partei angehört zu haben, deren Führung
+> der Hybris verfiel."
