@@ -24,9 +24,9 @@ Freiheitlichen Partei Österreichs (FPÖ).
 * NS-Kontinuitäten und Rechtextremismus
 > Anton Reinthaller beim Prozeß am Volksgerichtshof in Wien 1949 :
 > "Ich, eines der verfolgten Opfer der Totengräber unseres Landes
-> klage sie an, aller jener Verbrechen, die sie mit scheinheligem
+> klage sie an, aller jener Verbrechen, die sie mit scheinheiligem
 > Augenaufschlag Menschen zuschieben wollen, deren einzige Schuld
 > es ist, einer politischen Partei angehört zu haben, deren Führung
 > der Hybris verfiel."
 Bild : Regierung von Seyss-Inquart, Wien 1938, 4.v.r Anton Reinthaller
-<img src="https://de.wikipedia.org/wiki/Datei:Government_of_Seyss-Inquart.jpg"/>
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/4/49/Government_of_Seyss-Inquart.jpg/632px-Government_of_Seyss-Inquart.jpg"/>
